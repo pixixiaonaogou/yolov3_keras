@@ -1,1 +1,1 @@
-ÖÐÎÄ°æ±¾
+Chinese vesion
